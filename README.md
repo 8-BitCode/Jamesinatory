@@ -1,1 +1,1 @@
-highly informal video editor converting video to lower quality, highly compressed and.... shiny?
+highly informal video editor converting video to a lower video quality, highly compressed audio and.... shiny?
